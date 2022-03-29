@@ -1,3 +1,3 @@
 DEMO
 
-Speed up no time to waste
+Speed up no time to waste!
